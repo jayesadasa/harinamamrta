@@ -1,0 +1,1 @@
+[[20 ña-varjitās tu viṣṇu-gaṇāḥ|◀]]  [[_Bṛhad-dharināmāmṛta-vyākaraṇam#^ba4940|ka-ca-ṭa-ta-pā hari-kamalāni (18)]]  [[22 ka-ca-ṭa-ta-pā hari-kamalāni (18)|▶]] 
